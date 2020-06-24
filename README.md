@@ -1,1 +1,1 @@
-# stduing
+# studing
